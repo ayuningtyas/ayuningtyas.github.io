@@ -1,1 +1,0 @@
-# ayuningtyas.github.io
